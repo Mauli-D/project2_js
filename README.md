@@ -1,2 +1,2 @@
-# comp-2068-thursday
-A bookging platform
+Maulika Desai  
+Rinkal Vavadiya
